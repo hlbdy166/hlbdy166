@@ -1,6 +1,6 @@
 黑料不打烊最新地址（1/20更）
 
-免翻墙入口：https://bdy7.xyz
+免翻墙入口：https://bdy8.xyz
 永久入口需翻墙：https://166.run
 永久入口需翻墙：https://hlbdy.me
 App下载地址：https://8b7.yerwsu.com
