@@ -3,7 +3,7 @@
 免翻墙入口：https://ibdy11.com
 永久入口需翻墙：https://166.run
 永久入口需翻墙：https://hlbdy.me
-App下载地址：https://8b7.yerwsu.com
+App下载地址：https://fd00.zvhyjqkbxo.club
 官方免费Q群：http://c.ielsqqwrpj61.cn/s/XLzU
 ——————————————————-
 撸友福利：https://104d.sufysq.com
