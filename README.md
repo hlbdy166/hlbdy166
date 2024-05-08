@@ -4,10 +4,10 @@
 永久入口需翻墙：https://166.run
 永久入口需翻墙：https://hlbdy.me
 App下载地址：https://fd00.zvhyjqkbxo.club
-官方免费Q群：http://c.ielsqqwrpj61.cn/s/XLzU
+官方免费Q群：http://b.npawxqkyxn40.cn/s/XLzU
 ——————————————————-
-撸友福利：https://104d.sufysq.com
-官方推特：https://twitter.com/heiliao88
+撸友福利：https://bc8b.mlqtybsjr.cc
+官方推特：https://twitter.com/hlbdycg
 官方电报（telegram）群：https://t.me/heiliao5
 ——————————————————————-
 官方tg资源频道一：https://t.me/heiliao7
