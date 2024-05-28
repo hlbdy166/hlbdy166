@@ -1,9 +1,9 @@
 黑料不打烊最新地址（1/20更）
 
-免翻墙入口：https://ibdy21.com
+免翻墙入口：https://ibdy24.com
 永久入口需翻墙：https://166.run
 永久入口需翻墙：https://hlbdy.me
-App下载地址：https://fd00.zvhyjqkbxo.club
+App下载地址：https://b69d.ceogc.net/
 官方免费Q群：http://b.npawxqkyxn40.cn/s/XLzU
 ——————————————————-
 撸友福利：https://bc8b.mlqtybsjr.cc
