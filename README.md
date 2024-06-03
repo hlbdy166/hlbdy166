@@ -19,7 +19,7 @@
 
 <br>我们有偿收稿
 <br>邮箱投稿： hltougao@gmail.com
-<br>tg投稿：https://t.me/hxx668
+<br>tg投稿：https://t.me/lwx2000
 
 <br>唯一商务合作：https://t.me/xhxyh
 
