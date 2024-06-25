@@ -1,6 +1,6 @@
 黑料不打烊最新地址（1/20更）
 
-<br>免翻墙入口：https://ibdy24.com
+<br>免翻墙入口：https://ibdy25.com
 <br>永久入口需翻墙：https://166.run
 <br>永久入口需翻墙：https://hlbdy.me
 <br>App下载地址：https://b69d.ceogc.net/
